@@ -14,16 +14,14 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 
 ## Crash on my couch
-I have no permanent couch at the moment. But if I would, I’d say something like this:
+Till March 3 2016:
 
-* couch in Berlin-Kreuzberg, near cool spots like betahaus and c-base
+* place in Lisbon, near train station Alges
 
-No need to limit length of stay or state interests, just check out people’s profiles, look at their code and discuss everything directly in the issue.
+There are no beds nor mattraces. We sleep on the floor in our sleeping bags. You'll need your sleeping bag and pad.
 
 
 ## Have me crash on your couch
-Your next travels where you need a couch go in here, like:
-
-* May 6 – 12 in Berlin
-* June 3 – ? in Munich
+March 2016
+Portugal, Spain, Barcelona
 
