@@ -14,14 +14,11 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 
 ## Crash on my couch
-Till March 3 2016:
-
-* place in Lisbon, near train station Alges
-
-There are no beds nor mattraces. We sleep on the floor in our sleeping bags. You'll need your sleeping bag and pad.
+I move at the moment, I don't have a place.
+If you want, you can be hosted by my parents in Moravská Nová Ves (Czech Republic).
 
 
 ## Have me crash on your couch
-March 2016
-Portugal, Spain, Barcelona
+April - May 2016
+France - Switzerland - Scandinavia
 
