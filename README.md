@@ -15,10 +15,11 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 ## Crash on my couch
 I move at the moment, I don't have a place.
+
 If you want, you can be hosted by my parents in Moravská Nová Ves (Czech Republic).
 
 
 ## Have me crash on your couch
-April - May 2016
+###April - May 2016
 France - Switzerland - Scandinavia
 
